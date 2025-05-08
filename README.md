@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Khanya-A
-- 👀 I’m interested in Coding
+- 👀 I’m interested in Web Development/ gaming & Tech
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on apps
 - 📫 How to reach me akhanyalikuwe@gmail.com
